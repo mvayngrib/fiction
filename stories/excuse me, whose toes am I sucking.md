@@ -1,7 +1,7 @@
 #Excuse me, whose toes am I sucking?
 by Mark Vayngrib
 
-*5 minutes ago:*
+####2 minutes earlier
 
 "Well, here goes nothing. This arm," she says, holding up one of Venus's lost appendages made flesh, "from the elbow joint down, is my mother's."
 
@@ -23,7 +23,7 @@ She waits patiently, but a crimson blush is slowly creeping out of her decollet√
 
 *** 
 
-*1 hour earlier:*
+####1 hour earlier
 
 "Today's the day," I say to Freddie. We're at the local Starbucks. I've just finished drinking something with a healthy name it doesn't deserve, despite its low alcohol content.
 
@@ -79,7 +79,7 @@ Freddie chugs and slams the empty cup down on the table. Fifty more of those and
 
 ***
 
-*30 minutes earlier:*
+####30 minutes earlier
 
 Charisse must have sensed the momentous occasion because she looks absolutely stunning. I mean for a second I forget how stunning *I* must look. She's in a white strapless curve-hugging dress that goes down to just above her knees, with a slit on one side that your eyes follow up and up and still up, and I hope there are no old men ripe for a heart attack in the restaurant, but wait, it does end, just below her hipbone. No, just above. No wait, it's below again. Damn it! If she doesn't stop swinging those things, I might have a heart attack myself.
 
@@ -139,7 +139,7 @@ Charisse seems to relax a bit, but even my melodramatic rant doesn't put her com
 
 ***
 
-*presently:*
+####presently
 
 Tap, tap, tap.
 
