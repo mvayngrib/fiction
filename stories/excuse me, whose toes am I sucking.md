@@ -23,7 +23,7 @@ She waits patiently, but a crimson blush is slowly creeping out of her decollet√
 
 *** 
 
-####1 hour earlier
+####5 hours earlier
 
 "Today's the day," I say to Freddie. We're at the local Starbucks. I've just finished drinking something with a healthy name it doesn't deserve, despite its low alcohol content.
 
