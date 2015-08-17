@@ -41,7 +41,8 @@ She waits patiently, but a crimson blush is slowly creeping out of her decollet√
 
 "I could get married and have that too." Freddie's head spins around like a record, back to me. Now playing: Concern for Immortal Soul in B flat minor.
 
-"I'm joking," I say. "Plus, Charisse is a million times hotter." 
+"I'm joking," I say. "Plus, Charisse is a million times hotter."
+
 Freddie grins, noticeably relieved. "That she is. I mean just those legs alone are worth hitching yourself to." 
 
 "Yea, Santa gave her a real nice pair." He really did. It was easy to forget how smart she was.
@@ -71,7 +72,9 @@ Freddie looks intensely disappointed.
 
 Freddie raises his cup of Very Berry Hibiscus. Here comes a sappy toast.
 
-"May you be all three inches deep into your Disney princess before tonight ends." Or not.
+"May you be all three inches deep into your Disney princess before tonight ends." 
+
+Or not.
 
 "Yea yea, I get it, I have a tiny dick."
 
@@ -85,7 +88,7 @@ Charisse must have sensed the momentous occasion because she looks absolutely st
 
 I look up to see her smiling brilliantly, knowingly, seductively. A playful adulteress about to be made legit by yours truly. She extends a hand for me to kiss like she's accepting an award. *Um yes, I'd like to thank my mother, for getting all two miles of these legs out of her uterus safely, and the Academy of course, but please don't drool on the floor any more, I think I can see my panties in the reflection.* 
 
-I remember myself and offer her my arm. We're at the entrance to Idori, the Japanese restaurant whose staff I flirted with shamelessly to get reservations the night before. I'm a chick magnet, sue me for taking advantage of my God given gifts. I nod to the two ladies that frame the reception area, and that were instrumental in arranging this night, and they bow perfunctorily, but I catch a flirty smile from Aiko on her way down. I walk a little taller. Nothing boosts your confidence when proposing to one girl quite like the unveiled admiration of another.
+I remember myself and offer her my arm. We're at the entrance to Idori, the Japanese restaurant whose staff I flirted with shamelessly to get reservations the night before. I'm a chick magnet, sue me for taking advantage of my God given gifts. I nod to the two ladies that frame the reception area, and that were instrumental in arranging this night, and they bow perfunctorily, but I catch a flirty smile from Aiko on her way down. I walk a little taller. Nothing boosts your confidence when proposing to one girl like the unveiled admiration of another.
 
 Five minutes later we're seated, I've ordered, we're looking into each other's eyes, and I can't think of any more reasons to procrastinate.
 
@@ -97,7 +100,9 @@ Five minutes later we're seated, I've ordered, we're looking into each other's e
 
 "John." She laughs. What a distracting woman.
 
-"Will you marry me?" Phew. Almost punked out there for a second. I can feel my cheeks starting to pulsate with warmth, and I realize I'm looking at the white tablecloth instead of into her eyes. We'll have to do some revisionism to this memory later. I look up to gauge her reaction. Now whose turn is it to look at the tablecloth? Wait, why is she looking at the tablecloth?
+"Will you marry me?" 
+
+Phew. Almost punked out there for a second. I can feel my cheeks starting to pulsate with warmth, and I realize I'm looking at the white tablecloth instead of into her eyes. We'll have to do some revisionism to this memory later. I look up to gauge her reaction. Now whose turn is it to look at the tablecloth? Wait, why is she looking at the tablecloth?
 
 "John...I...," she starts, haltingly. Shit. My panic must be written all over my beautiful face because she looks up and suddenly has this look like she accidentally stepped on a kitten.
 
@@ -105,7 +110,7 @@ Five minutes later we're seated, I've ordered, we're looking into each other's e
 
 "What is it?" Why does she look like she and Maury are about to tell me it's not my baby?
 
-"Before we do this, I want to make sure that there are no secrets between us." Uh oh. She's said yes (she said yes!), but I'm not sure that'll stand after she Jack Bauer's the lurid details of my past sex life out of me, which is what these things are always about. How dare a man be born in a buffet and try more than one dish?
+"Before we do this, I want to make sure that there are no secrets between us." Uh oh. She's said yes (she said yes!), but I'm not sure that'll stand after she Jack Bauers the lurid details of my past sex life out of me, which is what these things are always about. How dare a man be born in a buffet and try more than one dish?
 
 "Is this about my..." I start, not knowing how the sentence is going to end.
 
@@ -195,7 +200,7 @@ I look her up and down, searching for clues. I don't understand, I know every in
 
 "He was old! He could barely taste anything anymore. And my mom does all the talking in our family anyway. He jokes that I saved his tongue, that it would have atrophied if it idled in his mouth much longer."
 
-"Ha ha," I say.
+"Ha ha," I say. My voice sounds flat and far away.
 
 "Though it's kind of hard to understand his jokes these days. Anyway..."
 
@@ -205,11 +210,15 @@ She nods mutely. Her face is a beautiful bouquet of condolences. Her arm a dead 
 
 "Can I see it?" I ask. She leans over a little and sticks out her tongue shyly.
 
-"But there are no seams or anything...can you stick it out a little more? Hm, I don't see a thing." 
+"But there are no seams or anything...can you stick it out a little more?"
 
-She packs it back up. "Yea, apparently the mouth is one of the fastest and best healing places in the whole body. Can you believe how amazingly lucky I was? I mean anywhere else and it would have left a hideous scar. I spent an extra five grand removing the one around my elbow. Made my hand look like a freaking glove."
+She does. I peer at it like a man desperately trying to find a scratch on a Ferarri, while praying he doesn't.
 
-"Amazingly lucky," I repeat. The room turns alternately hot then cold. I inspect myself discreetly and see that my armpits have been hard at work hydrating my three hundred dollar shirt. Charisse's is no longer crying, but I feel I may be before long.
+"Hm, I don't see a thing." 
+
+She packs it back up. "Yeah, apparently the mouth is one of the fastest and best healing places in the whole body. Can you believe how amazingly lucky I was? I mean anywhere else and it would have left a hideous scar. I spent an extra five grand removing the one around my elbow. Made my hand look like a freaking glove."
+
+"Amazingly lucky," I repeat. The room turns alternately hot then cold. I inspect myself discreetly and see that my armpits have been hard at work hydrating my three hundred dollar shirt. Charisse is no longer crying, but I feel I may be before long.
 
 "Is that all?" I ask finally. She looks down at her hands, bites her lower lip, then looks back at me, imploringly. Oh Christ. Here it comes. I've been suckling the nipples of a veal for the last year and a half due to a congenital nipple defect that runs in her family. Or because they were accidentally sliced off in a terrible flossing accident. She buys her hair in ShopRite and her eyebrows at Home Depot. I open my mouth but nothing comes out and I motion with my hand for her to continue.
 
@@ -273,15 +282,17 @@ I suddenly feel very tired. I put my hands up placatingly before this becomes ab
 
 "That's completely beside the point! You sold your toes for money, not for something real, like someone's fiancee's set of hot toes! How can I trust you not to do something like that again? I don't want to wake up one day on a million dollar yacht just because the night before you sold your breasts to Jennifer Connelly."
 
-The fight suddenly goes out of her. Her shoulders droop, the righteous anger drains out of her eyes.
+Something visibly breaks in her. Her shoulders droop, the righteous anger drains out of her eyes.
 
 "I know John. That's why I had to tell you. So you could decide for youself if you trust me anymore. And whether you're ok being married to some kind of human...Mrs. Potato Head."
 
-"Reese, you're not Mrs. Potato Head." How far I've fallen from my Oscar winning performance. I look around to see that half the restaurant is staring at us. Fuck them all. I take a deep breath and turn back to Charisse.
+"Reese, you're not Mrs. Potato Head." 
+
+How far I've fallen from my Oscar winning performance. I look around to see that half the restaurant is staring at us. Fuck them all. I take a deep breath and turn back to Charisse.
 
 "Look," I say, taking her hand in mine. Damn it but I can't remember which one's an original. "This is a lot to take in." She starts to nod frantically. "Can I...think about it for a few days?"
 
-She keeps on nodding like a bobblehead doll. "Of course, John. Take all the time you need."
+She nods her head vigorously and can't seem to stop, like a bobblehead doll. "Of course, John. Take all the time you need."
 
 ***
 
@@ -295,7 +306,9 @@ The taxi coasts up to my apartment, but I don't want to go home right now. Fredd
 
 "Sorry, talking to myself."
 
-"Love trouble?" If only it were that simple.
+"Love trouble?" 
+
+If only it were that simple.
 
 "Sort of. My girlfriend sold her toes." 
 
@@ -307,11 +320,13 @@ The breaks squeal and I almost hit the seat in front of me with my face.
 
 "Out!" he yells. "I'll not have this blasphemy in my cab!"
 
-My hands clench into tight fists, and I have to exert all my will power not to punch something. The driver glares at me, unintimidated.
+My hands clench into tight fists, and I have to exert all my will power not to punch something. I glare at the driver, who glares back at me, unintimidated. There's something feral in his eyes, and I back down.
 
-"Ok, ok. I'm sorry. I know it's a lot to take in all at once. Relax, I'm getting out." Jeez, and I thought I was intolerant.
+"Ok, ok. I'm sorry. I know it's a lot to take in all at once. Relax, I'm getting out." 
 
-I open the door and start to climb out of the cab. Just as I plant a foot on the ground, a nasal honking sound pierces the air. 
+Jeez, and I thought I was intolerant. I open the door and start to climb out of the cab. 
+
+Just as I plant a foot on the ground, a nasal honk pierces the air, then slides way up off the musical scale. 
 
 "Shit! Watch out!" I hear, then the door slaps me in the face like the fingernail of a metal giant flicking a fly. The back of my head crunches into something behind me. I hear someone, the caddie? give a girlish shriek, followed by a drum roll of tumbling appendages, the screech of metal on metal, then a heavy thud, and finally silence, measured by the regular zippery sound of a bicycle wheel spinning freely. 
 
